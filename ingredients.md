@@ -1,0 +1,1 @@
+Maida, Potato, Peas, Onion, Spices, Green chili, Cheese, Meat (Lamb, Beef or Chicken)
